@@ -7,3 +7,4 @@
 - Me gusta ir a conciertos aunque no conozca a las bandas. 
 
 ![kimba](https://github.com/user-attachments/assets/be1fd5f2-f6fe-408f-9131-006ce3b4a9b0)
+<img src="https://github.com/user-attachments/assets/be1fd5f2-f6fe-408f-9131-006ce3b4a9b0" width="300">
